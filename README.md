@@ -1,3 +1,3 @@
 We'll shame your dogs!
 
-Coming soon.
+Coming soon!
